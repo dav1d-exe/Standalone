@@ -1,4 +1,4 @@
 # Standalone
-Standalone Scripts made by dav1d.exe#5406
+Standalone Scripts made by dav1d.exe#2201
 
-For business inquiries, message me on discord. Discord: dav1d.exe#5406
+For business inquiries, message me on discord. Discord: dav1d.exe#2201
